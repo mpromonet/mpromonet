@@ -16,10 +16,14 @@
 [![CallItWhatItis](https://img.youtube.com/vi/seMchmXIO-Q/1.jpg)](https://www.youtube.com/watch?v=seMchmXIO-Q)
 [![BoldAsLove](https://img.youtube.com/vi/w2kaS0AUzLM/1.jpg)](https://www.youtube.com/watch?v=w2kaS0AUzLM)
 [![RatRace](https://img.youtube.com/vi/qCLQm0pqIX4/1.jpg)](https://www.youtube.com/watch?v=qCLQm0pqIX4)
+[![FadeIntoYou](https://img.youtube.com/vi/o4m5jQy5A2U/1.jpg)](https://www.youtube.com/watch?v=o4m5jQy5A2U)
 [![RiderOnTheStorm](https://img.youtube.com/vi/iv8GW1GaoIc/1.jpg)](https://www.youtube.com/watch?v=qCLQm0pqIX4)
 [![RainySeason](https://img.youtube.com/vi/i74Zf_FZNvQ/1.jpg)](https://www.youtube.com/watch?v=i74Zf_FZNvQ)
 [![Jolene](https://img.youtube.com/vi/yXlULkwhgrc/1.jpg)](https://www.youtube.com/watch?v=yXlULkwhgrc)
 [![Herculean](https://img.youtube.com/vi/M04vej5wfzE/1.jpg)](https://www.youtube.com/watch?v=M04vej5wfzE)
+[![LostInTheSupermarket](https://img.youtube.com/vi/hZw23sWlyG0/1.jpg)](https://www.youtube.com/watch?v=hZw23sWlyG0)
+[![SweetJane](https://img.youtube.com/vi/Fa9nN3G2CSg/1.jpg)](https://www.youtube.com/watch?v=Fa9nN3G2CSg)
+
 
 
 
