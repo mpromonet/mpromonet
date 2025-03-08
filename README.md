@@ -12,6 +12,8 @@
 [![LaMain](https://img.youtube.com/vi/tvanSC9FlkE/1.jpg)](https://www.youtube.com/watch?v=tvanSC9FlkE)
 [![HumanNature](https://img.youtube.com/vi/lttlkkPWC3w/1.jpg)](https://www.youtube.com/watch?v=lttlkkPWC3w)
 [![AstronomyDomine](https://img.youtube.com/vi/8UbNbor3OqQ/1.jpg)](https://www.youtube.com/watch?v=8UbNbor3OqQ)
+[![PiecOfMyHeart](https://img.youtube.com/vi/3SL0oRcD7t0/1.jpg)](https://www.youtube.com/watch?v=3SL0oRcD7t0)
+[![IGotLife](https://img.youtube.com/vi/DtJzr1Wcy_s/1.jpg)](https://www.youtube.com/watch?v=DtJzr1Wcy_s)
 [![Ocean](https://img.youtube.com/vi/jdYJf_ybyVo/1.jpg)](https://www.youtube.com/watch?v=jdYJf_ybyVo)
 [![CallItWhatItis](https://img.youtube.com/vi/seMchmXIO-Q/1.jpg)](https://www.youtube.com/watch?v=seMchmXIO-Q)
 [![BoldAsLove](https://img.youtube.com/vi/w2kaS0AUzLM/1.jpg)](https://www.youtube.com/watch?v=w2kaS0AUzLM)
